@@ -1,0 +1,7 @@
+- 👋 Yo, I’m @GlitchAryX
+- 👀 I’m all about that coding grind 💻 and surviving college life
+- 🌱 Currently trying to balance coding projects with assignments and caffeine
+- 💞️ Looking to collaborate on cool college projects—let's make something awesome!
+- 📫 Hit me up at ajeethrilrtk@gmail.com or catch me between classes (I’m usually online 🖥️)
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I once tried to debug my professor’s lecture slides... didn't work, but I learned a lot. 📚💻
