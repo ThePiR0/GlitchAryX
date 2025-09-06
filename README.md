@@ -1,4 +1,4 @@
-# 👾 Yo, I’m GlitchAryX
+# 👾 Yo, I’m ThePiR0
 
 Welcome to the chaos. I’m Aaryan—a CSE student who's out here breaking code, bending logic, and occasionally making things that actually work. I breathe in JavaScript and exhale bugs, but somehow it all comes together in the end.
 
