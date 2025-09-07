@@ -30,6 +30,6 @@ Also trying not to fry my laptop or my brain. So far, it’s going well. Ish.(Yo
 - 🧠 GitHub – You’re already here, go lurk my repos  
 - 💌 Email – ajeethrilrtk@gmail.com  
 - 📝 Blog – Coming when I stop procrastinating
-- 🌐 Portfolio- thepir0.github.io/mainwebpage/
+- 🌐 Portfolio- 🚧 Portfolio loading... creativity under construction 🚀
   
 > *Let’s collab, meme, and maybe break the internet (intentionally).* 🚀
